@@ -27,3 +27,4 @@ insta: pedrinhofxt
 
 
 predominante ( MC PAIVA )
+![download](https://user-images.githubusercontent.com/107414317/176943637-571d7f10-0f69-43ff-b3f2-e09000ee6298.jpeg)
